@@ -7,3 +7,6 @@ Eric is making some progress.
 Christian was drinking Fanta at the beginning of the class
 Alen is positively active 
 Christian has imported its Scratch file
+
+
+This is new informaiton 01.05.26  - Very important
